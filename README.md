@@ -3,4 +3,4 @@
 Re Hiring
 
 - Interview Date: 9/6/26
-- Status: No Update 
+- Status: 25/6/26 (Received Rejection Email)
